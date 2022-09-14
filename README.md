@@ -1,0 +1,2 @@
+# soundscapenarrative
+So far I'm anout halfway done. The idea is the first half is an increasingly awful song with interview clips (to be added) about the "awful" state of modern music.When the awful song reaches a climax, it will be sampled as a snare for an amen break with interview clips disproving the stance the modern music is terrible. I have the awful song finished, and began to add interview clips at the shift, but still need them in the beginning and to sample the snare.
